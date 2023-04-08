@@ -1,2 +1,0 @@
-Adjunto link a ppt Online para poder utilizar los recursos de google sheets
-https://www.canva.com/design/DAFVbUtdakU/I2jSCXOOduloj1UHD-bcUw/view?utm_content=DAFVbUtdakU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
